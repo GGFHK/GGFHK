@@ -1,0 +1,4 @@
+- 👋 Olá, sou @GGFHK
+- 🌱 Atualmente estou aprendendo java e python
+- 📫 Contato: DISCORD: GGFHK
+- ⚡ Curiosidade: Comecei a criar meus próprios projetos eletrônicos com apenas 7 anos
